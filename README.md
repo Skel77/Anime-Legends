@@ -1,2 +1,3 @@
 # Anime-Legends
-This is a game im working on
+©2023 Skel77
+All Rights Reserved.
